@@ -1,0 +1,1 @@
+[photo](https://miro.medium.com/v2/resize:fit:1400/1*pzxw2yRRK4OgSfVMB-TbFQ.png)
