@@ -5,5 +5,5 @@
 
 ![image](https://miro.medium.com/v2/resize:fit:828/format:webp/0*81Yk_fwfCB3iCwRP.png)
 ![image](https://miro.medium.com/v2/resize:fit:828/format:webp/1*mkqjZ8eQzWXOd6zfkKVM1w.png)
-![image](https://postimg.cc/rzb65jDF)
+[![Screenshot-2024-08-25-233340.png](https://i.postimg.cc/Yq2pKykg/Screenshot-2024-08-25-233340.png)](https://postimg.cc/rzb65jDF)
 ![image](https://miro.medium.com/v2/resize:fit:640/format:webp/1*Bdv_19j6x6oqZc8auXpaGg.jpeg)
